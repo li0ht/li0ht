@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @li0ht
-- 👀 I’m interested in ... Publish Job Offers 
+- 👀 I’m interested in ... Publish Job Offers & find outstanding Talent.
 - 🌱 I’m currently learning ... Myself  
 - 💞️ I’m looking to collaborate on ... People who is searching a better Job.
 - 📫 How to reach me ... www.astragroup.cl / www.astrarium.co
